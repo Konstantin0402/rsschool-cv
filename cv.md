@@ -14,6 +14,8 @@ VK: [korzin04kavstavay](https://vk.com/korzin04kavstavay)
 
 Mail: [ccchhheeevvvooo@gmail.com]()
 
+Discord: Константин (@Konstantin0402)
+
 ---
 
 ### Personal information:
